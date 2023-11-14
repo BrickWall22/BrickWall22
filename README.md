@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BrickWall22
+- 👀 I’m interested in Hot Blondes
+- 🌱 I’m currently learning JS
+- 💞️ I’m looking to collaborate on An  OF Video
+- 📫 How to reach me: birdlincoln1@outlook.com
